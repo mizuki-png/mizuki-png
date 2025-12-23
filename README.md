@@ -1,17 +1,4 @@
+IVANTILL IWVEC YOU GUYS MAKE ME WANT TO KMS
 
-  <p align="center">
-<img src="https://files.catbox.moe/0bupmc.jpg">
-  </p>
-
-  <p align="center">
-  ㅤㅤ‫ $${\color{#F6C5E6}ⱼᵤᵤᵢₖₒ ✦ ₙᵢₖₒ ㅤㅤ 𝓼𝓱𝓮/𝓱𝓮𝓻}$$
-  </p>
-
-  <p align="center">
-<img src="https://files.catbox.moe/y5n71r.jpg">
-  </p>
-  
-   <p align="center">
-    ㅤㅤ‫ $${\color{#F6C5E6}You'dㅤ think ㅤit's ㅤnoneㅤ of ㅤyour ㅤbusiness}$$
-   </p>
- 
+![Till telling Ivan to shut ip](https://github.com/user-attachments/assets/526ee6bb-538e-4636-b217-d4dad14c2355)
+![ALNST - Gacha Luka pregnant and Hyuna](https://github.com/user-attachments/assets/304acb8d-bc52-48ae-bfae-b50015550d19)
